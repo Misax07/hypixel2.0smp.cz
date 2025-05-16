@@ -1,1 +1,0 @@
-# hypixel2.0smp.cz
